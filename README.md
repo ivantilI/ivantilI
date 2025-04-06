@@ -1,7 +1,4 @@
-<p align="center"> ❛ el chico del apartamento 512 . . ❜ 
-<p align="center"> <img src="https://i.postimg.cc/NFrmsjkB/image-2024-10-05-222403918.png"/>
-</p>
+![haie](https://komarev.com/ghpvc/?username=ivantilI&label=🪽&color=ccccd0)
+<div align="center">         ،⠀now its 3 in the mornin', 
+<p align="center"> <img src="https://files.catbox.moe/22n739.png"/>
 
-<div align="center">
-  
-[RENTRY](https://rentry.co/oracIeofstars)‎    ‎‎‎‎‎‎˖‎    [ATABOOK](https://veiledwhispers.atabook.org)    ˖    [STRAWPAGE](https://bluelocks.straw.page)
